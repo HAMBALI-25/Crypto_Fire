@@ -1,4 +1,4 @@
-## Crypto_Fire: 
+## Crypto_Fire : 
 <img src="Crypto_Fire_1.png">
 💵 I would like to introduce you to our mnemonic bruteforcing app. This is not a new method of earning, but still very effective
 
@@ -6,11 +6,11 @@ Any crypto address has its mnemonic phrase, which consists of 12 words. Knowing 
 
 ⬇️More details about this method below
 
-## Crypto_Fire:
+## Crypto_Fire :
 <img src="Crypto_Fire_2.png">
 Login Aplikasi CoinTracker
 
-## Crypto_Fire:
+## Crypto_Fire :
 <img src="Crypto_Fire_3.png">
 
 AVAILABLE VERSIONS: 
@@ -35,7 +35,7 @@ FAQ:
 
 📲If you have any questions - contact
 
-## Crypto_Fire:
+## Crypto_Fire :
 <img src="Crypto_Fire_4.png">
 
  PRICE:
@@ -63,7 +63,7 @@ TYPES OF LICENSE:
 👨‍💻BUY LICENSE
 
 
-## Crypto_Fire:
+## Crypto_Fire :
 <img src="Crypto_Fire_5.png">
 
 👉 I provide you with all the 
@@ -79,35 +79,35 @@ What are you waiting for ⁉️🤨
 
 Find wallets with me 👉
 
-## Crypto  Fire 📺 
-Result Solana
+## Crypto  Fire 📺  
+💵Result Solana
+
 https://youtube.com/shorts/vNs8X2365tk?feature=shared
 
 ## Crypto  Fire 📺 
-Result Btc
+💵 Result Btc
 
 https://youtube.com/shorts/i3C6VjzK4Dw?feature=shared
-
-<img src="Crypto_Fire_6.png">
-
-💸 Free Discount Only 
 
 
 <img src="Crypto_Fire_9.png">
 💸 Free Discount Only 
 
 ## Crypto  Fire 📺 
-Result Solana
+ 💵 Result Solana
+
 https://youtube.com/shorts/vNs8X2365tk?feature=shared
 
-## Crypto  Fire 📺 
-Result Btc
+## Crypto  Fire 📺
+💵 Result Btc
 
 https://youtube.com/shorts/i3C6VjzK4Dw?feature=shared
-
 <img src="Crypto_Fire_7.png">
-💸 Free Discount Only 
 
+💸 Free Discount Only 
+<img src="Crypto_Fire_6.png">
+
+💸 Free Discount Only 
 
 <img src="Crypto_Fire_10.png">
 
