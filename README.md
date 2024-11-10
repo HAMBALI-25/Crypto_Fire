@@ -89,7 +89,7 @@ Find wallets with me 👉
 <img src="Crypto_Fire_8.png">
 💸 Free Discount Only 
 
-<img src="Promo_Discont_1.png">
+<img src="Promo_Discount_1.png">
 💸 Free Discount Only 
 
 ### Hi. I'm Hambali Developers 
