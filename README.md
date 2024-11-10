@@ -79,12 +79,38 @@ What are you waiting for ⁉️🤨
 
 Find wallets with me 👉
 
-## Crypto_Fire:
+## Crypto  Fire 📺 
+Result Solana
+https://youtube.com/shorts/vNs8X2365tk?feature=shared
+
+## Crypto  Fire 📺 
+Result Btc
+
+https://youtube.com/shorts/i3C6VjzK4Dw?feature=shared
+
 <img src="Crypto_Fire_6.png">
+
 💸 Free Discount Only 
+
+
+<img src="Crypto_Fire_9.png">
+💸 Free Discount Only 
+
+## Crypto  Fire 📺 
+Result Solana
+https://youtube.com/shorts/vNs8X2365tk?feature=shared
+
+## Crypto  Fire 📺 
+Result Btc
+
+https://youtube.com/shorts/i3C6VjzK4Dw?feature=shared
 
 <img src="Crypto_Fire_7.png">
 💸 Free Discount Only 
+
+
+<img src="Crypto_Fire_10.png">
+
 
 <img src="Crypto_Fire_8.png">
 💸 Free Discount Only 
