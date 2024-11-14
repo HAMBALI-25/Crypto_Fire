@@ -66,7 +66,7 @@ TYPES OF LICENSE:
 
 ❗️TEST PERIOD  - $80 / 1 day
 
-👨‍💻BUY LICENSE
+👨‍💻 BUY LICENSE
 
 
 ## Crypto_Fire :
@@ -115,13 +115,13 @@ https://youtube.com/shorts/i3C6VjzK4Dw?feature=shared
 
 💸 Free Discount Only 
 
-<img src="Crypto_Fire_10.png">
+<img src="Promo_Discount_1.png.png">
 
 
-<img src="Crypto_Fire_8.png">
+<img src="Promo_Discount_2.png">
 💸 Free Discount Only 
 
-<img src="Promo_Discount_1.png">
+<img src="Promo_Discount_3.png">
 💸 Free Discount Only 
 
 ### Hi. I'm Hambali Developers 
